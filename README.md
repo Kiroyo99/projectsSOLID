@@ -1,0 +1,9 @@
+---
+![Untitled](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/c9f3574b-0688-408b-b2dd-074981b4a488)
+![1](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/4f196002-0c40-49bf-8f93-e51ae51bfb6d)
+---
+![render](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/894b2b35-c5e4-40c8-9243-341c3e28ce14)
+---
+![image](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/0f169dfc-4e5f-48d0-bc92-6527f0a02576)
+![image](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/9d574ce7-7647-4853-94e3-17e2c4d94a5f)
+![image](https://github.com/Kiroyo99/projectsSOLID/assets/122227924/8644bb1c-e773-4cc4-8a99-e6fcd618d8d4)
